@@ -1,4 +1,4 @@
-# 
+# nft flip bot best Bot - real-time-monitoring and royalty-calculator is the best nft flip bot, featuring real-time-monitoring and royalty-calculator. Fast, smart, and optimized for
 
 
 
